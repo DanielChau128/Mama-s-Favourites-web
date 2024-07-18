@@ -1,2 +1,2 @@
-# Mama-s-Favourites-web
+# Mama's-Favourites-web
 LearnTech OTJ project
