@@ -2,4 +2,6 @@
 
 Mama's Favourites is a family run Italian and mediterranean restaurant in Birmingham established over 20 years.
 
-Relaxed atmosphere, no rushing customers 
+We focus around providing a relaxed atmosphere where customers don't feel the need to rush.
+
+Enjoy food, enjoy life.
